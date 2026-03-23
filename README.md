@@ -1,9 +1,9 @@
 
 
-*Some Videos to kepp and practice*
+*Some Videos to keep and practice*
 
 
-[Useful tips](https://www.youtube.com/shorts/ZnVL2Fb7Umc)
+[Practical Kitchen tips](https://www.youtube.com/shorts/ZnVL2Fb7Umc)
 
 
 [always save](https://www.youtube.com/shorts/xRtaVK4jJQo)
