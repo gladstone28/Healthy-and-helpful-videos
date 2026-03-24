@@ -17,3 +17,10 @@
 
 [Loss leaders](https://www.instagram.com/reel/DVWkvUmgDcI/?igsh=MTB3Z3JsdzlvMHl5cg%3D%3D)
 
+[Turn trash into watering tower](https://www.youtube.com/shorts/FoPYG1jo5ns)
+
+
+[Tyre garden](https://www.youtube.com/shorts/r8OJQLRn3z8)
+
+
+[Drink warm water on an empty stomach in the mornings](https://www.youtube.com/shorts/0Q2SzRwRH40)
